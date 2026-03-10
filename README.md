@@ -1,1 +1,0 @@
-# arac-takip-privacy
